@@ -1,4 +1,8 @@
-- Hi, I’m @coolkid93.
-- I’m interested in games and coding.
-- I’m currently learning nothing.
-- I’m looking to collaborate on games.
+- HELLO EVERYBODY MY NAME IS COOLKID98
+- I MAKE SOME SHIT THAT PEOPLE WILL PROBABLY ENJOY
+- I HOPE YOU ENJOY MY CRAPPY DRAWINGS
+- THANK YOU AND GOODBYE FRIENDS!
+
+- NG: @co0lkid98
+- CARA: @coolkid98
+- GJ: @co0lkid
